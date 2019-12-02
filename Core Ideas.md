@@ -1,4 +1,4 @@
-# Ideas for government reform
+# Ideas for Government Reform
 
 - Assigning limits to the amount of years a person can remain in a political career. For true democracy to happen, it must be illegal for the same people to remain in politics for decades on end, if the elected representatives cannot do it (presidents), then neither should other politicians. By making it so that the politicians are always changing, corruption becomes far harder to achieve and the system will always take in new blood, facilitating change and averting stagnation.
 
