@@ -26,4 +26,6 @@
 
 - Protection and preservation of regional and historical languages and customs, lest they be erased from History.
 
+- Overhauling the legal system in the sense that judges must be elected by the people and will not be allowed to serve for their entire lives. If politicians can just appoint judges, the ones who interpret the laws, then the integrity of the law will be compromised from the start.
+
 
